@@ -1,0 +1,2 @@
+# Honestly..-imagine-hating-on-Endo-systems-lolol
+They've done absolutely nothing wrong!! They are NOT faking DID because if someone were to fake DID they'd actually label themselves as having DID instead of using the endogenic label &lt;3!! Also no where does it say that you have to have trauma to have DID anyways heh... just Google it LMAO!!!! It says a LIKELY cause not a HAVE TO HAVE cause!! :D

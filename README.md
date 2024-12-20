@@ -7,3 +7,6 @@ The definition of an Endogenic System -> A system who either: A: Formed without 
 The definition of a Traumagenic System -> A system formed entirely by trauma
 
 Wow not that hard to comprehend right?? Exactly!! Endogenic systems can't control the fact they didn't form due to trauma!! So why are you being so fucking spiteful huh? Why do you devote ur whole life to someone who can't control smthn.. pretty fucking ableist imo..
+
+Btw plurality in itself isnt a diagnosis, its the dissasociation and amnesia that is :333
+I mean sure.. plurality is required to get diagnosed for DID but it isnt the main diagnosis itself

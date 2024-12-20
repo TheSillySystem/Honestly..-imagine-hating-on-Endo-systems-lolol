@@ -3,6 +3,7 @@ They've done absolutely nothing wrong!! They are NOT faking DID because if someo
 
 
 The definition of an Endogenic System -> A system who either: A: Formed without trauma, B: Formed due to trauma but chooses not to identify with it or C: Wasn't formed entirely by trauma
+
 The definition of a Traumagenic System -> A system formed entirely by trauma
 
 Wow not that hard to comprehend right?? Exactly!! Endogenic systems can't control the fact they didn't form due to trauma!! So why are you being so fucking spiteful huh? Why do you devote ur whole life to someone who can't control smthn.. pretty fucking ableist imo..
